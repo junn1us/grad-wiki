@@ -12,6 +12,14 @@ Phone: (518) 274-7100
 
 _The YWCA Food Pantry provides a 3 day emergency package of food to residents of the YWCA and of the Greater Capital Region. The food pantry is open 3 days and one evening per week and is available on a once per month basis. The YWCA Food Pantry provides packages of food to approximately 100 families per month. In order to meet the requirements of the YWCA's Food Pantry, please bring the following documents: Driver license or a photo identification card of the person requesting access to the food pantry._
 
+## RPI Campus Cupboard  
+1525 15th Street, 1st Floor, Off Campus Commons
+Troy, NY - 12180  
+Phone: (518) 276-6284
+Email: offcampus@rpi.edu
+
+_RPI’s Campus Cupboard (formerly Student Food Pantry) offers non-perishables to supplement all undergraduate and graduate primary food sources. Students are encouraged to be eco-friendly by bringing a recyclable bag. All RPI students are eligible to acquire food from the pantry. The hours change every semester, please see https://doso.rpi.edu/basic-needs-services for spefic hours._
+
 ## St Joseph's Church  
 416 Third Street  
 Troy, NY - 12180  
